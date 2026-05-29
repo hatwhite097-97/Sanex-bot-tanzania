@@ -1,1 +1,0 @@
-# Sanex-bot-tanzania
